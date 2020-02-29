@@ -23,4 +23,8 @@ Can not publish it ;)
 
 Not bad, not good )
 
+**Advanced skills:**
+
+Because this resume will not read anybody besides the bot, i decided to add my advanced skills like: Heroes of Might and Magic, Counter Strike, Starcraft, Sid Meyers Civilization, FIFA and etc. ))) 
+
 
