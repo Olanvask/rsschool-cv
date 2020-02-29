@@ -15,4 +15,12 @@ I want to get skills of iOS developer!
 - Siemens automation by: Simatic Step 7, Siemens WinCC
 - Java core
 
+**Code examples**
+
+Can not publish it ;)
+
+**English**
+
+Not bad, not good )
+
 
